@@ -1,1 +1,1 @@
-![](C:\Users\mahdi\OneDrive\Изображения\Screenshots\2025-07-27_20-45-38.png)
+![FireShot Capture 003 -  - [localhost].png](..%2F..%2FOneDrive%2FDesktop%2FFireShot%20Capture%20003%20-%20%20-%20%5Blocalhost%5D.png)
