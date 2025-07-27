@@ -1,0 +1,1 @@
+![](C:\Users\mahdi\OneDrive\Изображения\Screenshots\2025-07-27_20-45-38.png)
